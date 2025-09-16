@@ -1,1 +1,0 @@
-# Homework 1 README file 9/15/2025
